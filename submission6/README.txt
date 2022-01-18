@@ -3,10 +3,12 @@ rukshanaamintonika@gmail.com
 https://www.coursera.org/learn/python/home/welcome
 https://www.coursera.org/learn/html/home/welcome
 
-
 completed youtube video:
 https://www.youtube.com/watch?v=64KoIH15j04
 https://www.youtube.com/watch?v=wfPccGCifms
+https://www.youtube.com/watch?v=1F3DEq8ML1U
+https://www.youtube.com/watch?v=Azyizl9w2xo&list=PLrjkTql3jnm9FEOXHA_qjR-TMODlaIk-W
+https://www.youtube.com/watch?v=zXu93Gsco0k
 https://www.youtube.com/playlist?list=PLBlnK6fEyqRgMCUAG0XRw78UA8qnv6jEx
 
 completed book:
