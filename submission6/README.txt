@@ -20,7 +20,6 @@ https://www.youtube.com/playlist?list=PLBlnK6fEyqRgMCUAG0XRw78UA8qnv6jEx
 completed book:
 https://drive.google.com/file/d/1wWQbI1ykcHIdt8xr6MCKPuI4wW2k2NP5/view?usp=sharing
 https://drive.google.com/file/d/1ufCLlAU7QgpRleP-JV5Tnue5aJzAROPS/view?usp=sharing
-https://b-ok.asia/book/2740843/6cf9f9
 https://drive.google.com/file/d/1tVZIxQJKQVUFV8oBD6kmsL_64ZN2k6XH/view?usp=sharing
 
 did project:
